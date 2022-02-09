@@ -4,7 +4,7 @@
 - 💞️ Estoy totalmente enamorada de un grupo llamado SHINee
 - 📫 Mi discord: sweetly♡ #4964
 
-                                                        💕 Horario Escolar actual 💕
+                                       💕 Horario Escolar actual 💕
 |       | Lunes                                         | Martes                                        | Miércoles                                     | Jueves                                        | Viernes                                       |
 |-------|-----------------------------------------------|-----------------------------------------------|-----------------------------------------------|-----------------------------------------------|-----------------------------------------------|
 | 12:00 | Simulacion                        | Simulacion                          | Simulacion                         | Simulacion                         | Simulacion  
