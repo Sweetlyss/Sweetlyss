@@ -1,8 +1,8 @@
 - 🥰 Hola, mi nombre es Lyssette, pero todos me dicen ✨Lyss✨.
 - 👀 Estoy muy intesada en encontrar musica nueva cada dia.
-- 🌱 Tengo un gran amor-odio por mi carrera que es Ingenieria en Sistemas, aun que en su mayoria del tiempo la amo
-- 💞️ Estoy totalmente enamorada de un grupo llamado SHINee
-- 📫 Mi discord: sweetly♡ #4964
+- 🌱 Tengo un gran amor-odio por mi carrera que es Ingenieria en Sistemas, aun que en su mayoria del tiempo la amo.
+- 💞️ Estoy totalmente enamorada de un grupo llamado SHINee.
+- 📫 Mi discord: sweetly♡ #4964.
 
                                        💕 Horario Escolar actual 💕
 |       | Lunes                                         | Martes                                        | Miércoles                                     | Jueves                                        | Viernes                                       |
